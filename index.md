@@ -14,4 +14,4 @@ Jewelry care guides
 Stories behind custom designs
 
 Features on other amazing handmade artists
-link: See My Work: 
+See My Work: 
